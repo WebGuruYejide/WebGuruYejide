@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @WebGuruYejide
 - 👀 I’m interested in all aspects the emerging technology
-- 🌱 I’m currently learning cloud computing
-- 💞️ I’m looking to collaborate on I don't know yet
+- 🌱 I’m currently learning cloud computing FROM GOOGLE!!!!
+- 💞️ I’m looking to collaborate on being a better version of me
 
 
 <!---
